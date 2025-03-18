@@ -5,4 +5,4 @@ We are a small team creating resources on FiveM and RedM. Quality and Performanc
 Soon
 
 ## Tebex
-Soon
+[https://qwaly.dev/](https://qwaly.dev/)
